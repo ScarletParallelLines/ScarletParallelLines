@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ScarletParallelLines
+- 👋 Hi, I'm fool.
 - 👀 I'm interested in playing games.
 - 🌱 I'm not studying.
 - 💞️ I don't want to collaborate.
